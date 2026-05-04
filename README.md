@@ -1,0 +1,1 @@
+# Veridicta-Group
